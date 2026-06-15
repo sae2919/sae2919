@@ -1,5 +1,5 @@
 Hi there 👋
-I'm Jangam Reddy Gari Sailinga Reddy. Welcome to my profile! Here’s a bit about me:
+I'm Sailinga Reddy Jamngam Reddy Gari. Welcome to my profile! Here’s a bit about me:
 
 🌟 About Me
 Name: Jangam Reddy Gari Sailinga Reddy
